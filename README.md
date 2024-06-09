@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @paolores
-- 📫 You can reach me on discord "! paolores #0001"
+- 📫 You can reach me on discord ! paolores "PRS"
